@@ -14,5 +14,5 @@ Target: **5 hours/day of practice until placement!**
 
 ## 🔗 Connect with Me
 
-- 🌐 [LinkedIn](https://linkedin.com/in/yajnasshetty)
+- 🌐 [LinkedIn](www.linkedin.com/in/yajna-shetty-821698259)
 - 📬 yajnasshetty@gmail.com
